@@ -1,3 +1,3 @@
-Esta foi uma pequeno projeto desenvolvidado por mim!💻🔥
+Esta foi uma pequeno projeto desenvolvido por mim!💻🔥
 
 Aqui estão os links das minhas redes sociais.
